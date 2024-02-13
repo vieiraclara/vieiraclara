@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @vieiraclara, or Ana. I am brazilian and live in São Paulo
+- 👀 I’m interested in Data cience and cyber security, but i am very open to every oportunity
+- 🌱 I’m currently on a tecnical gradution on a federal institute in Brazil, and there i learn things such as: data structure, logical thinking in programs, and many other related things
+- 📫 To reach me you may send a email on anacmv27@gmail.com and I will be looking to answer as soon as possible
+- 🤓 I am new to the plataform and will be trying to colaborate in as many projects here as i can
+- 😄 My pronouns are she/her
+- ⚡ A fun fact about me is that I am curretly part of the accademic center and working on a social project that seeks keeping women on the information area, since in brazil there is a lack of us here.
