@@ -4,4 +4,4 @@
 - 📫 To reach me you may send a email on anacmv27@gmail.com and I will be looking to answer as soon as possible
 - 🤓 I am new to the plataform and will be trying to colaborate in as many projects here as i can
 - 😄 My pronouns are she/her
-- ⚡ A fun fact about me is that I am curretly part of the accademic center and working on a social project that seeks keeping women on the information area, since in brazil there is a lack of us here.
+- ⚡ A fun fact about me is that I am curretly part of the accademic center and working on a social project that seeks keeping women on the tecnology field, since in brazil there is a lack of us here.
